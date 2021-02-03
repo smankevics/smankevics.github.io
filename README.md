@@ -1,1 +1,0 @@
-# smankevics.github.io
